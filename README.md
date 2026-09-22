@@ -1,2 +1,2 @@
 # clubgdl.info
-Mi pagina web
+https://sites.google.com/view/clubgdl
